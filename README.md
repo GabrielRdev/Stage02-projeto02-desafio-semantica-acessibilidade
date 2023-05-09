@@ -1,0 +1,1 @@
+# Stage02-projeto02-desafio-semantica-acessibilidade
